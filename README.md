@@ -5,3 +5,5 @@ Paula Andrea Ortega Sanjuan
 Estudiante de Ingeniería Industrial
 
 Video Entrega 2: https://www.youtube.com/watch?v=JkumDIO5Eao
+
+Video Entrea Final: https://youtu.be/v47ZqfIysA0
